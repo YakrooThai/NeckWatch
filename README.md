@@ -4,3 +4,14 @@ Neck watch PICO ZERO This is a neckband watch that can see the time, see picture
 
 
 https://www.youtube.com/watch?v=MJRZ1pXO99E
+
+
+![ccdd](https://github.com/YakrooThai/NeckWatch/assets/56666070/c27c30b2-c329-4c57-9252-78a7fffb80a4)
+
+![ccdd](https://github.com/YakrooThai/NeckWatch/assets/56666070/c2ca4e17-b502-4b8a-ae34-6e73f0a4eab8)
+
+
+![20230621_145111](https://github.com/YakrooThai/NeckWatch/assets/56666070/bac154c9-7a94-47ba-a557-29d3d149c06d)
+
+
+![20230622_095901](https://github.com/YakrooThai/NeckWatch/assets/56666070/0d17d640-d1e6-48e2-a57d-062a17704c6b)
