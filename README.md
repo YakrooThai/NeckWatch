@@ -34,3 +34,5 @@ https://www.youtube.com/shorts/yXcUMGU6V0o
 ![359141537_801554911319814_2676319663847895425_n](https://github.com/YakrooThai/NeckWatch/assets/56666070/aa7b4d5c-8447-46ff-a18b-786df8bcda7f)
 
 ![355999124_1020877869047798_5628654883150106603_n](https://github.com/YakrooThai/NeckWatch/assets/56666070/6368490b-8f79-4b37-bad6-a30ac9952f09)
+
+https://www.youtube.com/shorts/m43rCDcbZAg
