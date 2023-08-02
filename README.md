@@ -36,3 +36,9 @@ https://www.youtube.com/shorts/yXcUMGU6V0o
 ![355999124_1020877869047798_5628654883150106603_n](https://github.com/YakrooThai/NeckWatch/assets/56666070/6368490b-8f79-4b37-bad6-a30ac9952f09)
 
 https://www.youtube.com/shorts/m43rCDcbZAg
+
+Please follow my YouTube channel. Still a newbie to make a YouTube channel.
+
+Just press Subscribe my youtube channel. Thankyou
+
+https://www.youtube.com/@Yakroo108 < ===== ( -/|-)
