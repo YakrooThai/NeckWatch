@@ -1,6 +1,9 @@
 # NeckWatch
 Neck watch PICO ZERO This is a neckband watch that can see the time, see pictures, show running characters, show animations.
 
+Neck watch PICO (cyberpunk)
+This is a neckband watch that can see the time, see pictures, show Text Moving, show Gif animations. Style cyberpunk
+
 ![359986171_660672705931938_8139307928871429234_n](https://github.com/YakrooThai/NeckWatch/assets/56666070/6723daa5-1880-449d-9530-f29b64da852a)
 
 
