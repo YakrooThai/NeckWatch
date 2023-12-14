@@ -52,6 +52,7 @@ https://www.youtube.com/shorts/-RBs5WmpRD8
 
 https://www.youtube.com/shorts/5aaS9sELjr4
 
+![73240f73-6366-4c9a-9f6d-4515aa609c35](https://github.com/YakrooThai/NeckWatch/assets/56666070/338efde2-c72e-450f-b85a-06812f768071)
 
 Please follow my YouTube channel. Still a newbie to make a YouTube channel.
 
